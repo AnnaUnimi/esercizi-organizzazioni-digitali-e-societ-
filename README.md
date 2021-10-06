@@ -1,1 +1,1 @@
-# esercizi-organizzazioni-digitali-e-societ-
+# esercizi-organizzazioni-digitali-e-società
